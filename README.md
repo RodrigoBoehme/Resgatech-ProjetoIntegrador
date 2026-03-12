@@ -38,20 +38,10 @@ Link: [TRELLO](https://trello.com/invite/b/69b1f4309af483167f370135/ATTIb7651731
 
 ## Apresentação
 
-[Apresentação Canva](https://www.canva.com/design/DAGZ07xiAhw/WQPustfPXW6BpEaH1Ip4UQ/view?utm_content=DAGZ07xiAhw&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h2a30923b01)
+[Apresentação Do Canva](https://www.canva.com/design/DAGZ07xiAhw/WQPustfPXW6BpEaH1Ip4UQ/view?utm_content=DAGZ07xiAhw&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h2a30923b01)
 
 ## Artigos e Documentos
 [OverLeaf](https://www.overleaf.com/read/bgqcjmdmvmhm#705f8c)
 
 [Projeto](https://docs.google.com/document/d/1l-mksFd1MLT9Tp9tfvOTlnNB7cVMcfGWuMv-su7gLb0/edit?usp=sharing)
 
-
-
-
-
-
-
-## Outros
-
-
-[Editar Canva](https://www.canva.com/design/DAGZ07xiAhw/eMxuTNqAgjwLpmTbPxFrhw/edit?utm_content=DAGZ07xiAhw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
